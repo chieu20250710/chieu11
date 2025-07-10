@@ -10,4 +10,4 @@
 
 这些平台专注于久久精品国产精品亚洲内容，集合了大量优质国产及麻豆资源，更新频繁，分类细致。每个视频页面都提供详细介绍，包括影片时长、画质和主演，支持高清播放，并可根据用户网络自动调整画质，保证观看流畅。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/chieu20250710/chieu11 ）</span>
